@@ -1,2 +1,2 @@
 # Blogger
-https://abdulqawiqaid.blogspot.com/
+https://www.abdulqawiqaid.org/
